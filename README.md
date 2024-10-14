@@ -1,1 +1,1 @@
-# Privacy Policy of 'Live Stream'.
+Privacy Policy of 'Live Stream'.
