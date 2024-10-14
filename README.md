@@ -1,1 +1,1 @@
-# pp_live_stream
+# Privacy Policy of 'Live Stream'.
